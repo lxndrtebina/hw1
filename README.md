@@ -3,6 +3,6 @@
 * #### *и прочее*
 | Сеть | Имя |
 | --- | --- |
-| Telegram | @lxndrmotherduck |
+| Telegram | [@lxndrmotherduck](https://t.me/lxndrmotherduck) |
 | GitHub | @lxndrtebina |
-| Instagram | @chewingunicorn |
+| Instagram | [@chewingunicorn]( |
