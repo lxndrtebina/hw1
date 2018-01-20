@@ -7,7 +7,7 @@
 | Telegram | [@lxndrmotherduck](https://t.me/lxndrmotherduck) |
 | GitHub | [@lxndrtebina](https://github.com/lxndrtebina) |
 | Instagram | [@chewingunicorn](https://www.instagram.com/chewingunicorn/) |
-## Цитаты, благодаря которым вы сразу поймете, что Вы нашли меня, если искали:
+## Цитаты, благодаря которым вы сразу поймете, что вы нашли меня, если искали:
 * 1. [Эта нерпа](https://www.youtube.com/watch?v=6kSUoBtXhs8 "вот эта") рисует лучше меня!
 * 2. Кто бы мог подумать, что [цифровая грамотность](http://wiki.cs.hse.ru/%D0%A6%D0%B8%D1%84%D1%80%D0%BE%D0%B2%D0%B0%D1%8F_%D0%B3%D1%80%D0%B0%D0%BC%D0%BE%D1%82%D0%BD%D0%BE%D1%81%D1%82%D1%8C_2018_(2_%D1%81%D0%B5%D0%BC%D0%B5%D1%81%D1%82%D1%80 "о да") ЭТО ТАКОЙ ИНТЕРЕСНЫЙ ПРЕДМЕТ!
 * 3. Я голодная.
