@@ -1,4 +1,4 @@
-* ![alt_text](http://www.80daysandcounting.com/wp-content/uploads/2014/10/uzfq56hmA84-1024x682.jpg)
+ ![alt_text](http://www.80daysandcounting.com/wp-content/uploads/2014/10/uzfq56hmA84-1024x682.jpg)
 ## [Тебина Александра](https://moiarussia.ru/wp-content/uploads/2015/09/34536_1000-e1441643968889.jpg "байкальская нерпа")
 * ### *информация о себе* 
 * #### *и прочее*
